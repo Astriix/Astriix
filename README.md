@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Astriix
+- 👀 I’m interested in coding and graphic design!
+- 🌱 I’m currently learning french and HTML!
+- ✨ Have a good day! <3
